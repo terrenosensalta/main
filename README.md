@@ -1,2 +1,7 @@
-# main
-Una nueva forma de invertir en  bienes raíces en la naturaleza. 
+# 🌅⛰️terrafy.ar es una plataforma que te conecta con oportunidades de inversión💲 en lotes ecológicos. 
+Explora las diferentes opciones que tenemos disponibles: eco turismo, eco residencial, y oportunidades en pre-venta. ¿En qué zona te gustaría invertir? 🌱
+1. Eco turismo 🌅⛰️
+2. Eco residencial 👨‍👩‍👧‍👧🌱
+3. Oportunidad preventa 😯📝
+
+Podes invertir en efectivo💰, transferencias y 💳 criptomonedas.
